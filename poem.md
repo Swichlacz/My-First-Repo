@@ -13,7 +13,7 @@
     So he gravely took his rod in hand, and threw the line about,
     But the fish perceived distinctly that he was not looking out;
     And he said, 
-    > Sweetheart, I love you! 
+> Sweetheart, I love you! 
     but she said she could not stay:
     But she did, 
    **in the usual way.**
